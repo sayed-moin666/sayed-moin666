@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help **with some hacking tips and knowledge**
 
-- 💬 Ask me about **hacking,cybersecurity**
+- 💬 Ask me about **hacking and cybersecurity**
 
 - 📫 How to reach me **haider142800@gmail.com**
 
